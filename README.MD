@@ -1,0 +1,1 @@
+Estou achando o curso desafiador. O tutorial nem sempre condiz com o que deve ser feito, obrigando o aluno a ir além do que está sendo explicado.
